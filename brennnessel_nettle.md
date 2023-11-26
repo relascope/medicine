@@ -1,3 +1,4 @@
+Brennnessel wird in der TCM dem Element Feuer zugeordnet
 
 Indikation und Heilwirkung
 ===============================
